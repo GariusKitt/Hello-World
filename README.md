@@ -1,3 +1,3 @@
 # Hello im VAVILong
-This group is intended for
+Just Test
 Anonymous group for disabled people
